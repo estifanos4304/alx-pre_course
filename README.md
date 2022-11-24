@@ -1,2 +1,2 @@
-i supposed to edit this thing pull it 
+i supposed to edit this thing and pull it 
 
