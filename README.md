@@ -1,2 +1,2 @@
-i supposed to edit this thing and pull it 
+this is the second try to edit and pull 
 
